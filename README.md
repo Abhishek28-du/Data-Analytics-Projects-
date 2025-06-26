@@ -88,4 +88,4 @@ If you are interested in discussing a collaboration, internship opportunity, or 
 
 Email: abhishek28.du@gmail.com
 
-LinkedIn:linkedin.com/in/abhishekmishra28
+LinkedIn: linkedin.com/in/abhishekmishra28
